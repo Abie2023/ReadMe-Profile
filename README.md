@@ -4,7 +4,7 @@
 - 💞️ I want to collaborate on innovative projects to contribute and develop my skills.
 - 📫 Reach me via: <br>
   www.linkedin.com/in/dan-12-shalom <br>
-  https://www.instagram.com/abie_k777/
+
 
 
 <!---
